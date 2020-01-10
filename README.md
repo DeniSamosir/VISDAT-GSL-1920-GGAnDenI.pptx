@@ -1,0 +1,1 @@
+# VISDAT-GSL-1920-GGAnDenI.pptx
